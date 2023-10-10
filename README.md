@@ -1,5 +1,5 @@
 # 1nem
-EDUCAÇÃO SEXUAL
+<b>EDUCAÇÃO SEXUAL</b>
 
 Educação sexual para a prevenção do abuso sexual de crianças e adolescentes
 Como falar sobre sexualidade e prevenção do abuso sexual com crianças e adolescentes de acordo com cada faixa etária
